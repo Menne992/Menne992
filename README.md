@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Menne992
 - 👀 I’m interested in eating poop
 - 🌱 I’m currently learning eating poop 
-- 💞️ I’m looking to collaborate on poop
+- 💞️ I’m looking to collaborate on eating poop
 - 📫 How to reach me: shit in ur panties so that i can change them and eat the poop
 
 <!---
